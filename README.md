@@ -71,5 +71,5 @@ Created using **Power BI Desktop**, the dashboard helps users easily explore whi
 **Hasnaa Ahmed**  
 📍 Nasr City, Egypt  
 📧 hasnaaahmed745@gmail.com  
-🔗 [LinkedIn](https://www.linkedin.com)
+🔗 [LinkedIn](https://www.linkedin.com/in/hasnaa-ahmed-5a648a310/)
 
